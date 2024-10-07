@@ -3,7 +3,7 @@
 
 [Cơ bản]2. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077794388
 
-[Cơ bản]3. Luyện tập nhóm lệnh motion: 
+[Cơ bản]3. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077850679
 
 [Cơ bản]4. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077813466
 
