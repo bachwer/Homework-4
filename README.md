@@ -13,7 +13,7 @@
 
 [Giỏi]7. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077965994/
 
-[Giỏi]8. Luyện tập nhóm lệnh motion: 
+[Giỏi]8. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1078190586
 
 [Xuất sắc]9. Luyện tập nhóm lệnh motion: 
 
